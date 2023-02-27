@@ -1,2 +1,0 @@
-Jack Corrough
-Chicago Bears
